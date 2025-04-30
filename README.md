@@ -22,6 +22,7 @@
 ☆ 𝗂𝖿 𝗒ⱺυ 𝖼α𐓣, ρᥣ𝗌 𝗌𝗂𝗀𐓣 ꭑ𝗒 𝗌𝗍𝗋αωρα𝗀𝖾!! ^_^
 
 ![](https://komarev.com/ghpvc/?username=your-github-username)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=dc143c)
 
 <!--
 
