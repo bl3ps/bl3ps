@@ -3,7 +3,7 @@
 ![download](https://github.com/user-attachments/assets/1413387e-bd4a-4c95-9a61-f87799214151)
 
 
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ꕥꕥꕥꕥ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ꕥꕥꕥꕥ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ☆ 𝚰'ꭑ ᥣ𝖾α𝗋𐓣𝗂𐓣𝗀 ɦⱺω 𝗍ⱺ α𝖼𝖼 𝖼ⱺᑯ𝖾 </3
 
@@ -20,6 +20,8 @@
 ![Apr 23, 2025 at 4_03 PM](https://github.com/user-attachments/assets/9af05de8-2194-40fd-bd7a-dbb7630dbcd4)
 
 ☆ 𝗂𝖿 𝗒ⱺυ 𝖼α𐓣, ρᥣ𝗌 𝗌𝗂𝗀𐓣 ꭑ𝗒 𝗌𝗍𝗋αωρα𝗀𝖾!! ^_^
+
+![](https://komarev.com/ghpvc/?username=your-github-username)
 
 <!--
 
