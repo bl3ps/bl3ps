@@ -16,9 +16,7 @@
 "ᴵ ᶜᵃⁿ ᶜʰᵃⁿᵍᵉ ʷʰᵃᵗ ʰᵃᵖᵖᵉⁿˢ ᵗᵒ ᵐᵉ, ᵇᵘᵗ ᴵ ʳᵉᶠᵘˢᵉ ᵗᵒ ˡᵉᵗ ⁱᵗ ʳᵉᵈᵘᶜᵉ ᵐᵉ." 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ꕥꕥꕥꕥ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-![download](https://github.com/user-attachments/assets/5be8dcb7-3380-42f7-8f8b-03e95a0772fe)![download](https://github.com/user-attachments/assets/5be8dcb7-3380-42f7-8f8b-03e95a0772fe)
 ![download](https://github.com/user-attachments/assets/5be8dcb7-3380-42f7-8f8b-03e95a0772fe)
-
 
 
 
